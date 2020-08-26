@@ -17,7 +17,9 @@
           <img src="{{site.logo | relative_url}}" alt="Logo" />
         {% endif %}
 
-        <p>{{ site.description | default: site.github.project_tagline }}</p>
+        <p>I'm <a href="https://twitter.com/RoqaVuk">Vuk</a>. {{ site.description }}</p>
+        
+        {% include toc.html html=content %}
       </header>
       <section>
 
