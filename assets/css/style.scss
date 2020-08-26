@@ -1,0 +1,23 @@
+---
+---
+
+@import "{{ site.theme }}";
+
+header {
+  ul {
+    list-style: initial;
+    height: auto;
+    padding: revert;
+    background: initial;
+    border: none;
+    li {
+      width: auto !important;
+      float: none;
+      border-right: none;
+      a {
+        display: inline;
+        text-align: left;
+      }
+    }
+  }
+}
