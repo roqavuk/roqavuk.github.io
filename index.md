@@ -1,9 +1,3 @@
-# things I know
-
-#### and that I'd rather not forget
-
-I'm [Vuk](https://twitter.com/roqavuk). I know next to nothing and I keep forgetting even that, so here's what I know.
-
 ## ground rules
 
 1. Radiate intent freely and honestly.
@@ -133,7 +127,7 @@ imagine what the following would think about your situation and you'll feel thin
 
 ## meditation results
 
-- **fear of strength | productivity | losing weight | doing things**: a black net over my chest and throat, choking me. it *wants* me to curl up, freeze, hide. it *needs* to make sure nobody can see me or talk about me. then, it can open its wings, become tall and wide. if i feed it this warm strength, it turns into a heavy rubbery black cape. "I will protect you from people. I will turn their glances into admiration. I will turn their words into stunned silence. I will guard your back." it makes me look badass and will always come when i feed it warmth. [images](https://twitter.com/RoqaVuk/status/1294951480429084673)
+- **fear of strength / productivity / losing weight / doing things**: a black net over my chest and throat, choking me. it *wants* me to curl up, freeze, hide. it *needs* to make sure nobody can see me or talk about me. then, it can open its wings, become tall and wide. if i feed it this warm strength, it turns into a heavy rubbery black cape. "I will protect you from people. I will turn their glances into admiration. I will turn their words into stunned silence. I will guard your back." it makes me look badass and will always come when i feed it warmth. [images](https://twitter.com/RoqaVuk/status/1294951480429084673)
 - if you separate along sub/dom lines, the sub's been running my life and the dom's been hidden away, which is not an ideal separation of household tasks – topping from the bottom is draining. let him out. (think about your transition)
 
 ## gender
