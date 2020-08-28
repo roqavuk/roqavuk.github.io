@@ -125,7 +125,14 @@ imagine what the following would think about your situation and you'll feel thin
 - you can pray without a god
 - kneel, with all the epic sincerity your soul needs
 
-## meditation results
+
+## introspection tech
+
+- focusing
+- feeding your demons
+- [change belief tech](https://twitter.com/WeftOfSoul/status/1298878494978592769)
+
+## introspection results
 
 - **fear of strength / productivity / losing weight / doing things**: a black net over my chest and throat, choking me. it *wants* me to curl up, freeze, hide. it *needs* to make sure nobody can see me or talk about me. then, it can open its wings, become tall and wide. if i feed it this warm strength, it turns into a heavy rubbery black cape. "I will protect you from people. I will turn their glances into admiration. I will turn their words into stunned silence. I will guard your back." it makes me look badass and will always come when i feed it warmth. [images](https://twitter.com/RoqaVuk/status/1294951480429084673)
 - if you separate along sub/dom lines, the sub's been running my life and the dom's been hidden away, which is not an ideal separation of household tasks – topping from the bottom is draining. let him out. (think about your transition)
@@ -155,9 +162,10 @@ imagine what the following would think about your situation and you'll feel thin
 
 - [bullying pays off for the bully](https://twitter.com/HarryTWalton/status/1291305580259348481)
 
-## quotes
+## quotes and good twetes
 
 - i struggled with some demons / they were middle class and tame / i didn't know i had permission to murder & to maim
 - ja! ich weiß woher ich stamme / ungesättigt, gleich der flamme / glühe und verzehr ich mich / licht ist alles, was ich fasse / kohle alles, was ich lasse / flamme bin ich sicherlich
 - the burning star thing
 - pale blue dot, you know what
+- [god is severus snape](https://twitter.com/RoqaVuk/status/1299268642010476544)
