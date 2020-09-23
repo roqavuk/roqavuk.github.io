@@ -1,0 +1,45 @@
+Shadows I have yet to eat. A cursed place. Do not linger.
+
+- Loud male anger triggers a delayed-onset trauma reaction. In the situation I hide or fawn, afterwards I experience shock like after a traffic accident.
+- Not having a family.
+- Not being extremely integrated in my family.
+- Being fat, having *thighs*.
+- Being weak, not being strong, not exercising.
+- Tending towards messy.
+- Shoplifting in my childhood.
+- Self-harming too much as a teenager, self-harming too little as a teenager.
+- Being unable to resist food … or not unable, but food is a big hangup and that in itself is shadow territory. Meta-shadow.
+- Sex generally, [redacted] specifically.
+- didn't start early enough, not a genius
+- not reading enough serious books
+- not being clever enough to read hegel/kant/…
+- not knowing how politics work
+- not knowing how simple mechanical stuff works
+- phone calls are extremely aversive and that feels shameful
+- "high-maintenance"
+- clothes look terrible on my wide hips
+- not having an ambition
+- being both too low-class and too high-class
+- being too hasty to be diligent and rigorous
+- not having tattoos
+- jealousy of popularity and success: I can't work the crowd, can't do "big twitter account", can't be a popular streamer
+- I'm not consistent.
+- not calling my grandparents
+- being worse than somebody younger (optionally: who looks up to me), eg younger siblings
+- being motivated by competition, wanting to show off
+- not being elegant
+- not being super practical (fixing sinks, etc)
+- too self-involved (mirrors, photos)
+- not speaking more languages
+- german accent
+- singing
+- spending money on myself/enjoyment
+- not speaking up in bystander-effect situations
+- ashamed of my job and salary
+- not being god at sewing
+- wanting to be popular
+- not being popular
+- no friends at school / shunning
+- lack of creativity/originality
+- I'm just using my friends
+- 
