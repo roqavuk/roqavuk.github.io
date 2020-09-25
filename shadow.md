@@ -1,45 +1,59 @@
-Shadows I have yet to eat. A cursed place. Do not linger.
+Shadows I have yet to eat. A cursed place. Do not linger. This place is not a place of honor. No highly esteemed deed is commemorated here. Nothing valued is here.
 
 - Loud male anger triggers a delayed-onset trauma reaction. In the situation I hide or fawn, afterwards I experience shock like after a traffic accident.
-- Not having a family.
+- Not having a family, particularly not having children.
 - Not being extremely integrated in my family.
+- Not calling my grandparents.
 - Being fat, having *thighs*.
 - Being weak, not being strong, not exercising.
 - Tending towards messy.
 - Shoplifting in my childhood.
-- Self-harming too much as a teenager, self-harming too little as a teenager.
+- Self-harming too much as a teenager, self-harming too little as a teenager
 - Being unable to resist food … or not unable, but food is a big hangup and that in itself is shadow territory. Meta-shadow.
 - Sex generally, [redacted] specifically.
-- didn't start early enough, not a genius
-- not reading enough serious books
-- not being clever enough to read hegel/kant/…
-- not knowing how politics work
-- not knowing how simple mechanical stuff works
-- phone calls are extremely aversive and that feels shameful
-- "high-maintenance"
-- clothes look terrible on my wide hips
-- not having an ambition
-- being both too low-class and too high-class
-- being too hasty to be diligent and rigorous
-- not having tattoos
-- jealousy of popularity and success: I can't work the crowd, can't do "big twitter account", can't be a popular streamer
+- Not a genius, underperforming, people are smarter than I am
+- Not reading enough serious books
+- Not being clever enough to understand hegel/kant/…
+- Not knowing how politics work
+- Not knowing how simple mechanical stuff works
+- Phone calls are extremely aversive and that feels shameful
+- "High-maintenance"
+- Clothes look terrible on my wide hips
+- Not having an ambition
+- Being both too low-class and too high-class
+- Being too hasty to be diligent and rigorous
+- Not having tattoos
+- Jealousy of popularity and success: I can't work the crowd, can't do "big twitter account", can't be a popular streamer
 - I'm not consistent.
-- not calling my grandparents
-- being worse than somebody younger (optionally: who looks up to me), eg younger siblings
-- being motivated by competition, wanting to show off
-- not being elegant
-- not being super practical (fixing sinks, etc)
-- too self-involved (mirrors, photos)
-- not speaking more languages
-- german accent
-- singing
-- spending money on myself/enjoyment
-- not speaking up in bystander-effect situations
-- ashamed of my job and salary
-- not being god at sewing
-- wanting to be popular
-- not being popular
-- no friends at school / shunning
-- lack of creativity/originality
+- Being less good than somebody younger (optionally: who looks up to me), eg younger siblings
+- Being motivated by competition, wanting to show off
+- Not being elegant
+- Not being super practical (fixing sinks, etc)
+- Too self-involved (mirrors, photos)
+- Not speaking more languages
+- German accent
+- Generally not being fluent in English
+- Singing voice, lack thereof
+- Speaking voice, how I sound when talking
+- Spending money on myself/enjoyment
+- Not speaking up in bystander-effect situations
+- Ashamed of my job and salary
+- Not being good at sewing
+- Wanting to be popular
+- Not being popular
+- No friends at school / shunning
+- Lack of creativity/originality
 - I'm just using my friends
+- Not being vegetarian
+- Being slow on a bike
+- Being bad at skating/skiing
+- Choice of partners in my early relationships
+- Amount of fanfiction read in past depressive episodes
+- Not eating fish/picky eating
+- Lack of good taste in music, contents of my spotify faves
+- Inability to focus on human speech for longer stretches of time
+- Talking too much
+- Feels terrible to clean when people are watching or even could be watching
+- Shame over how I handled my first breakup
+- Have a way harder time connecting to people who I find ugly. Shallow, bad, sucks.
 - 
