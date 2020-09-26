@@ -56,4 +56,16 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - Feels terrible to clean when people are watching or even could be watching
 - Shame over how I handled my first breakup
 - Have a way harder time connecting to people who I find ugly. Shallow, bad, sucks.
-- 
+- Being too charismatic
+- Trapped in groups
+- Dancing
+- Cars. Driving.
+- Contempt and negative judgement towards others
+- Introspection being aversive
+- No nerd cred
+- Cleaning and tidying, especially when people are around
+- Not being b\*\*\*y, the creative friendly tech nerd
+- Not holding myself to high standards
+- fremdschämen
+- why is action == damage
+- Inconsistency
