@@ -5,7 +5,7 @@
 3. When you flinch from it, turn towards it.
 4. Embody your vibe relentlessly.
 
-*but also* rules are for suckers, playfulness mwahahaha
+*but also* rules are for suckers, playfulness mwahahaha. Do the narratively most interesting thing.
 
 [cf](https://www.ribbonfarm.com/2018/02/15/make-your-own-rules/)
 
