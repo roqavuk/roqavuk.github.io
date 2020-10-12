@@ -69,3 +69,4 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - fremdschämen
 - why is action == damage
 - Inconsistency
+- Forever alone loser clearly a whimp undesirable, [see also](https://nplusonemag.com/issue-35/fiction-drama/the-feminist/)
