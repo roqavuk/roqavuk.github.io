@@ -22,9 +22,11 @@ all of these are secondary to my investigation of non-coerciveness
 - Stream games. Stream stuff.
 - Take up space. Move in space.
   - Dancing? Could I … dance? Or martial arts. Play with my body while I have time.
+  - be aware of (your|a) rhythm
 - Figure out [my meta level](https://twitter.com/Malcolm_Ocean/status/1310984762522243074)
 - continue morning pages
 - try all the things: how else would you know what you want?
 - try scary and brave things. public creativity
 - try weird thing, like s. or o. would. pay for a coversong. plan an elaborate trip.
 - close all tabs, achieve [statelessness](https://freedom.brick.do/7ac2607d-8e94-4f59-b5e8-8ceeb2f97b7c)
+- do the narratively most interesting thing. experiment with different narratives.
