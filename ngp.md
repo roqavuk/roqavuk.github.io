@@ -30,3 +30,5 @@ all of these are secondary to my investigation of non-coerciveness
 - try weird thing, like s. or o. would. pay for a coversong. plan an elaborate trip.
 - close all tabs, achieve [statelessness](https://freedom.brick.do/7ac2607d-8e94-4f59-b5e8-8ceeb2f97b7c)
 - do the narratively most interesting thing. experiment with different narratives.
+- can I like biking? long tours even?
+- [selfies](https://twitter.com/metaLulie/status/1264252734380834816), go back to liking the mirror
