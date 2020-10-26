@@ -32,3 +32,9 @@ all of these are secondary to my investigation of non-coerciveness
 - do the narratively most interesting thing. experiment with different narratives.
 - can I like biking? long tours even?
 - [selfies](https://twitter.com/metaLulie/status/1264252734380834816), go back to liking the mirror
+
+## Regular things
+
+- movement
+- meditation
+- writing/morning pages
