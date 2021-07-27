@@ -1,5 +1,7 @@
 Shadows I have yet to eat. A cursed place. Do not linger. This place is not a place of honor. No highly esteemed deed is commemorated here. Nothing valued is here.
 
+- flat isn't a real home / needs more everything
+- am alone, will always be alone / dating and finding partners
 - Loud male anger triggers a delayed-onset trauma reaction. In the situation I hide or fawn, afterwards I experience shock like after a traffic accident.
 - Not having a family, particularly not having children.
 - Not being extremely integrated in my family.
@@ -7,13 +9,11 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - Being fat, having *thighs*.
 - Being weak, not being strong, not exercising.
 - Tending towards messy.
-- Shoplifting in my childhood.
 - Self-harming too much as a teenager, self-harming too little as a teenager
 - Being unable to resist food … or not unable, but food is a big hangup and that in itself is shadow territory. Meta-shadow.
 - Sex generally, [redacted] specifically.
 - Not a genius, underperforming, people are smarter than I am
 - Not reading enough serious books
-- Not being clever enough to understand hegel/kant/…
 - Not knowing how politics work
 - Not knowing how simple mechanical stuff works
 - Phone calls are extremely aversive and that feels shameful
@@ -38,19 +38,14 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - Spending money on myself/enjoyment
 - Not speaking up in bystander-effect situations
 - Ashamed of my job and salary
-- Not being good at sewing
 - Wanting to be popular
 - Not being popular
 - No friends at school / shunning
 - Lack of creativity/originality
-- I'm just using my friends
-- Not being vegetarian
-- Being slow on a bike
 - Being bad at skating/skiing
 - Choice of partners in my early relationships
 - Amount of fanfiction read in past depressive episodes
 - Not eating fish/picky eating
-- Lack of good taste in music, contents of my spotify faves
 - Inability to focus on human speech for longer stretches of time
 - Talking too much
 - Feels terrible to clean when people are watching or even could be watching
@@ -60,10 +55,8 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - Trapped in groups
 - Dancing
 - Cars. Driving.
-- Contempt and negative judgement towards others
 - Introspection being aversive
 - No nerd cred
-- Cleaning and tidying, especially when people are around
 - Not being b\*\*\*y, the creative friendly tech nerd
 - Not holding myself to high standards
 - fremdschämen
@@ -71,8 +64,6 @@ Shadows I have yet to eat. A cursed place. Do not linger. This place is not a pl
 - Inconsistency
 - Forever alone loser clearly a whimp undesirable, [see also](https://nplusonemag.com/issue-35/fiction-drama/the-feminist/)
 - drawn-out death alone
-- failing people and people who I have failed
-- breaking off contact with people
 - being unworthy of my friends
 - profiting from how the world is unfair
-- 
+
