@@ -23,7 +23,6 @@
 - anger is a strength. remember the bad thing and be angry. he dared to touch you.
 - there's a fire in you and don't you forget
 - **if you flinch from it, turn towards it**
-- if anything, start expressing
 
 ## role models and others
 
@@ -32,7 +31,7 @@ imagine what the following would think about your situation and you'll feel thin
 - esme weatherwax
 - nanny ogg (of course)
 - miles vorkosigan (sigh)
-- cordelia naismith
+- cordelia naismith, though honestly … aral and jole too
 - friedrich nietzsche
 - sam vimes
 - ursula k leguin
@@ -46,17 +45,15 @@ imagine what the following would think about your situation and you'll feel thin
 - posture is reflection. remember the hat full of sky and you're good.
 - cue: spark joy
 - asking your body nicely to do something is a powerful cheat code
-- cue: in what ways might your very presence blind and astound others with its brilliance
 - cue: radiate intent
 - consider how you dress
-- mirror monkey
+- cue: rate yourself out of 10 ("I'm a 10")
 
 ## people, communication
 
 - polarise early when you can afford it. trust that it'll work out.
 - you're good at people. don't know why, but it feels like magic
 - you hate to think about phone calls, you hate to prepare for meeting people, but you're fluent and happy while being in the situation. maybe cut out the first part.
-- communication includes: your model -> your referents -> their referents -> their models. brains.
 - go for 1:1 communications more often than your intuition says. it pays off. [glare at people in private](https://devonzuegel.com/post/the-silence-is-deafening)
 
 ## friendships
@@ -86,19 +83,21 @@ imagine what the following would think about your situation and you'll feel thin
 - apply the [meta protocol](https://meditationstuff.wordpress.com/protocol-documents/protocol-analysis/) because verbalising
 - productivity out of spite is valid
 - consider: [goals vs values](https://www.lesswrong.com/posts/E4zGWYzh6ZiG85b2z/the-curse-of-the-counterfactual). not just what, but how.
+- just announcing to the air what's happening/not happening/what you'd like is another cheat code
 
 ## self-improvement
 
 - ha.
 - whatever you're going for: it's in you, all you have to do is let go (or worst case: shape it into good embodiment)
 - if anything, think bigger, soar
+- hate to say this, but if you're alternating between two extremes, zoom out and go for synthesis (sorry)
 
 ## problems
 
 - [destruction](http://notebook.ohuiginn.net/destructive-character/) is a way to solve problems
 - focusing or feeding your demons work well on structual problems, but less if they are extreme
 - deep breaths and playfulness. sorry, you don't want to hear that, but it's true.
-- you chose this problem. appreciate this.
+- you chose the problem. appreciate this.
 - have you tried being into it? (spoiler: you have.)
 - cue: make it harder
 - cue: make it trivial (aka: what does mastery look like?)
@@ -120,10 +119,9 @@ imagine what the following would think about your situation and you'll feel thin
 
 - you miss religion, you need religion, find a way to satisfy that
   - [build a religion](https://twitter.com/RoqaVuk/status/1296926657622749185)
-- rituals with friends, no matter how casual
-- remember earthseed: everything changes, shape change
+  - but also, building a religion probably only works when you have several centuries to wait it out
 - you can pray without a god
-- kneel, with all the epic sincerity your soul needs
+- kneel
 
 
 ## introspection tech
@@ -168,4 +166,3 @@ imagine what the following would think about your situation and you'll feel thin
 - ja! ich weiß woher ich stamme / ungesättigt, gleich der flamme / glühe und verzehr ich mich / licht ist alles, was ich fasse / kohle alles, was ich lasse / flamme bin ich sicherlich
 - the burning star thing
 - pale blue dot, you know what
-- [god is severus snape](https://twitter.com/RoqaVuk/status/1299268642010476544)
